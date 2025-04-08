@@ -16,4 +16,4 @@
 - 🔗 [LinkedIn](https://www.linkedin.com/in/komal-yadav-66567120a)
 - 📧 komalyadav220601@email.com
 - 🌐 Medium Blog: (https://medium.com/@komalyadav220601)
-- 📊 Github/ Project Link: (https://github.com/komalyadav220601)
+- 📊 Github/ Project Link: (https://github.com/Komal-Yadav123)
